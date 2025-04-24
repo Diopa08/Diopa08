@@ -57,7 +57,7 @@
 
 - 💼 Consultez mon travail sur: [Mon portfolio](https://diopa08.github.io/portfolio/)
 - GitHub : [@Diopa08](https://github.com/Diopa08)
-- LinkedIn : [linkedin.com/in/a-o-persévérance-dossou-426bb4227](https://www.linkedin.com/in/a-o-pers%C3%A9v%C3%A9rance-dossou-426bb4227?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3Bm7%2BTq6TbREWqbffIpzIDng%3D%3D)
+- LinkedIn : [in/a-o-persévérance-dossou](https://www.linkedin.com/in/a-o-pers%C3%A9v%C3%A9rance-dossou-426bb4227?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3Bm7%2BTq6TbREWqbffIpzIDng%3D%3D)
 - Email : dossouperseverance7@gmail.com
 
 ---
